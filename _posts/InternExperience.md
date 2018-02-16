@@ -1,4 +1,4 @@
-## DevOps Engineer Internship
-### MYOB
+## Internship Experience at MYOB
+### DevOps Engineer Intern
 
 
